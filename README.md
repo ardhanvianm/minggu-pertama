@@ -13,4 +13,5 @@ ardhan vian maulana
 
 ![eFootball-PES-2025-Apk-1](https://github.com/user-attachments/assets/8e144f93-cdab-4007-9067-aa0a695e412a)
 [Proposal Kegiatan Tournament Ps.pdf](https://github.com/user-attachments/files/21177826/Proposal.Kegiatan.Tournament.Ps.pdf)
+[Soal_TIK_Pengerjaan_Microsoft_Word (1).docx](https://github.com/user-attachments/files/21194605/Soal_TIK_Pengerjaan_Microsoft_Word.1.docx)
 
